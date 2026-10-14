@@ -219,4 +219,4 @@ Dungeon Hunter 5 is available as a full free version for Windows, with all featu
 Ready to embark on your epic quest? **Download Dungeon Hunter 5 Free now and become the ultimate monster hunter!**
 
 ---
-**Last updated:** 2026-10-13 22:36:47 UTC
+**Last updated:** 2026-10-14 01:39:24 UTC
